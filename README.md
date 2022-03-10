@@ -12,10 +12,10 @@
 
 ‼️备用发布页 建议全部收藏！
 
-⭐️ 【发布页①】 ：https://2020ry.xyz
+⭐️ 【发布页①】 ：smmys.xyz
 
 ⭐️ 【发布页②】 ：https://ruyiys.xyz
 
-⭐️ 【发布页③】 ：https://ryysw.xyz
+⭐️ 【发布页③】 ：https://github.com/smmys/fabu/
 
 纸飞机：chinawansui
