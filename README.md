@@ -14,8 +14,8 @@
 
 ⭐️ 【发布页①】 ：smmys.xyz
 
-⭐️ 【发布页②】 ：https://ruyiys.xyz
+⭐️ 【发布页②】 ：www.ebay.com/usr/smmdizhi
 
-⭐️ 【发布页③】 ：https://github.com/smmys/fabu/
+⭐️ 【发布页③】 ：github.com/smmys/fabu/
 
 纸飞机：chinawansui
