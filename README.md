@@ -12,10 +12,10 @@
 
 ‼️备用发布页 建议全部收藏！
 
-⭐️ 【发布页①】 ：smmys.xyz
+⭐️ 【发布页①】 ：https://smmys.xyz
 
-⭐️ 【发布页②】 ：www.ebay.com/usr/smmdizhi
+⭐️ 【发布页②】 ：https://www.ebay.com/usr/smmdizhi
 
-⭐️ 【发布页③】 ：github.com/smmys/fabu/
+⭐️ 【发布页③】 ：https://github.com/smmys/fabu/
 
 纸飞机：chinawansui
