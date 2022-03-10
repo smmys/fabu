@@ -4,7 +4,7 @@
 
 👉 【永久地址】 ：smmys.com
 
-👉 【最新地址①】 ：https://2020ry.xyz
+👉 【最新地址①】 ：https://2022ry.xyz
 
 👉 【最新地址②】 ：https://ruyiys.xyz
 
