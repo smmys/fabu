@@ -15,7 +15,7 @@ Ctrl+D收藏本页面，避免走丢！
 
 ‼️‼️地址发布页 建议全部收藏！
 ---
-⭐️ 【发布页①】 ：https://smmys.xyz
+⭐️ 【发布页①】 ：https://smmdizhi.com/
 
 ⭐️ 【发布页②】 ：https://www.ebay.com/usr/smmdizhi
 
