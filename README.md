@@ -4,11 +4,12 @@ Ctrl+D收藏本页面，避免走丢！
 
 👉 【海外永久地址】 ：smmys.com
 
-👉 【最新地址①】 ：https://ryysw.xyz
+👉 【最新地址】 ：https://smm212.com
 
-👉 【最新地址②】 ：https://ruyiys.xyz
+👉 【最新地址】 ：https://ryysw.xyz
 
-👉 【最新地址③】 ：https://2022ry.xyz
+👉 【最新地址】 ：https://ruyiys.xyz
+
 
 📫 【发送任意邮件】：smmzxdz@gmail.com 获取最新网址
 
